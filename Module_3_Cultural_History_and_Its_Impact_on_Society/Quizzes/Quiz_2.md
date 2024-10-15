@@ -1,0 +1,1 @@
+2. Describe how art reflected the values of a particular civilization.
