@@ -1,0 +1,1 @@
+3. Discuss the role of mythology in understanding ancient cultures.
