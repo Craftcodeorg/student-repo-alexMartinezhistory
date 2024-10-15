@@ -1,0 +1,1 @@
+3. Discuss the role of philosophers in shaping political thought in Ancient Greece.
