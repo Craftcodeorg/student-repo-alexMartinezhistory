@@ -1,0 +1,1 @@
+1. Define key characteristics of a civilization.
